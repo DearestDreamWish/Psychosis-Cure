@@ -62,8 +62,8 @@ Routine to rehab: Read and think "Your thoughts come by itself, with concentrati
 
 
 
-So it this you?
 
+So it this you?
 So please tell me, am I sick? Will I die without knowing and still be more stressed with anxiety and fear. I don't do a lot to go against it, so if I die then I die without honor but as an idiot without good reasons. Loss of potential, more risks, more danger and all of it unnecessary.
 
 
