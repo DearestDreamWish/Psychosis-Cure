@@ -41,6 +41,10 @@ If you are in doubt and have to choose, the brain can be "split". The greater th
 If neccesary get other people involved, from friends to psychologists or therapist. By changing the pattern, symptoms gets easier to notice and react, also make proactive choices.
 
 
+Make a game out of it.
+
+
+
 Motivational things:
 
 
