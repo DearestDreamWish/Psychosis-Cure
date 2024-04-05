@@ -2,7 +2,7 @@
 A theory and implementation for curing and/or changing psychosis.
 
 ![Danish visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/20221005_123606.jpg)
-![Danish visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/Uden%20titel.png)
+![English visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/Uden%20titel.png)
 
 If memory, logic and senses were put in a set like a half bubble. And if structure, thought, feeling and intelligence in this sequence were put in a set and interconnected in the sequence called F L O W and diagonal not named and additionally between the named connections/links. And if sequence, plan and action were put in a set interconnected making a triangle. And if from high to low order making a stair The, perspective and momentum were put in a set. And if in a half box where top has link and bottom difference were a set. Would all these sets then not make a puzzle of the consciousness, which when solved then be able to change a persons psychosis?
 
