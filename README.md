@@ -29,7 +29,7 @@ By giving personalized code, like as example if paranoid schizophrenia:
 9 threat, weapon, spy or nine Combine numbers and it gets a meaning in context.
 
 The person would at some time think in codes and organize by looking, moving or saying.
-At some time the person if the person keeps going, would like to something.
+At some time the person if the person keeps going, would like to do something.
 
 Also: All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
 
@@ -44,7 +44,8 @@ If you are in doubt and have to choose, the brain can be "split". The greater th
 If neccesary get other people involved, from friends to psychologists or therapist. By changing the pattern, symptoms gets easier to notice and react, also make proactive choices.
 
 
-Make it to a game, it could be mental to conversations.
+Make it to a game, it could be mental to conversations or roleplays.
+
 
 For comfort:
 
@@ -58,7 +59,7 @@ Every problem has solutions, work from inside to outside. Don't undermine or thi
 
 
  
-Routine to rehab: Read and think "Your thoughts come by itself, with concentration it can come by with effort." Keep the common world in thought. Meditate every day with positive and constructive sentences. Every perspective has a meaning likewise has world views. Hallucinations can be expression for feelings or thoughts. Remember that it just can, it's not always right. Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable. Reflect before sleep and after about what has happened in the real world. Remember to remember the real world and train your brain without exhausting, but have energy enough for the day. Focus to change bad habits and keeping good habits. Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence. Keep remembering true good moments. Keep track of your own body language and your feelings. Note down abnormalities and check if their are abnormalities, but only if it's convenient. Keep remembering the true world and don't do harm unless it's necessary. Keep remembering that you are yourself and that only you can control yourself. Take care of yourself with hygiene and nutrition. Drink enough water every day. Meditate by closing your eyes and focusing on only your breathing for 20 minutes every day. Documentate wrong assumptions and conclusions and solve it. Listen to tones from 8 hz to 14 hz in a loop. Try online visualization scripts. If you lose control imagine your body where it is. Train your mind again with small tasks, it doesn't matter what it is, just work your mind to a good balance. Play games to reinforce your skills and abilities and be in a positive social circle to reinforce yourself and your personality. I recommend: https://www.udemy.com/course/the-complete-personal-development-course/ Look at the bottom of this page for motivational writings.
+Routine to rehab: Read and think "Your thoughts come by itself, with concentration it can come by with effort." Keep the common world in thought. Meditate every day with positive and constructive sentences. Every perspective has a meaning likewise has world views. Hallucinations can be expression for feelings or thoughts. Remember that it just can, it's not always right. Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable. Reflect before sleep and after about what has happened in the real world. Remember to remember the real world and train your brain without exhausting, but have energy enough for the day. Focus to change bad habits and keeping good habits. Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence. Keep remembering true good moments. Keep track of your own body language and your feelings. Note down abnormalities and check if their are abnormalities, but only if it's convenient. Keep remembering the true world and don't do harm unless it's necessary. Keep remembering that you are yourself and that only you can control yourself. Take care of yourself with hygiene and nutrition. Drink enough water every day. Meditate by closing your eyes and focusing on only your breathing for 20 minutes every day. Documentate wrong assumptions and conclusions and solve it. Listen to tones from 8 hz to 14 hz in a loop. Try online visualization scripts. If you lose control imagine your body where it is. Train your mind again with small tasks, it doesn't matter what it is, just work your mind to a good balance. Play games to reinforce your skills and abilities and be in a positive social circle to reinforce yourself and your personality. I recommend: https://www.udemy.com/course/the-complete-personal-development-course/ 
 
 
 
