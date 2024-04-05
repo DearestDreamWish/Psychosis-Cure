@@ -1,5 +1,6 @@
 # Psychosis-Cure
 A theory and implementation for curing and/or changing psychosis.
+Danish and English models.
 
 ![Danish visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/20221005_123606.jpg)
 ![English visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/Uden%20titel.png)
@@ -42,6 +43,10 @@ If neccesary get other people involved, from friends to psychologists or therapi
 
 
 Make it to a game, it could be mental to conversations.
+
+For comfort:
+
+![English visual comfort structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/effect%20affect%20titel.png)
 
 
 Motivational things:
