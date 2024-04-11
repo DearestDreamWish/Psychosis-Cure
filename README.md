@@ -51,6 +51,16 @@ For comfort:
 
 ![English visual comfort structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/effect%20affect%20titel.png)
 
+For understanding:
+
++Mind's eye: the mental faculty of conceiving imaginary or recollected scenes. 
+
++Verbal working memory system. 
+
++Synesthesia: Distinct from neuroscience, the concept of synesthesia in the arts is regarded as the simultaneous perception of multiple stimuli in one gestalt experience. Is a perceptual phenomenon in which stimulation of one sensory or cognitive pathway. 
+
++Mind wandering: a condition in which thoughts do not remain focused on the task at hand but range widely and spontaneously across other topics.
+
 
 Motivational things:
 
