@@ -89,6 +89,33 @@ Make it to a game, it could be mental to conversations or roleplays.
 
 + What to do: one tells a story or situation and the other has to explain what to do. Points are awarded for each correct option mentioned to the explainer. For each incorrect option mentioned, points are given to the narrator. One point is given to the narrator, if the person who has to explain does not mention anything. The roles are changed after the points are awarded.
 
+# Routine to rehab: 
++ Read and think "Your thoughts come by itself, with concentration it can come by with effort."
++ Keep the common world in thought.
++ Meditate every day with positive and constructive sentences.
++ Every perspective has a meaning likewise has world views.
++ Hallucinations can be expression for feelings or thoughts.
++ Remember that it just can, it's not always right.
++ Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
++ Reflect before sleep and after about what has happened in the real world.
++ Remember to remember the real world and train your brain without exhausting, but have energy enough for the day.
++ Focus to change bad habits and keeping good habits.
++ Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence.
++ Keep remembering true good moments.
++ Keep track of your own body language and your feelings.
++ Note down abnormalities and check if their are abnormalities, but only if it's convenient.
++ Keep remembering the true world and don't do harm unless it's necessary.
++ Keep remembering that you are yourself and that only you can control yourself.
++ Take care of yourself with hygiene and nutrition.
++ Drink enough water every day.
++ Meditate by closing your eyes and focusing on only your breathing for 20 minutes every day.
++ Documentate wrong assumptions and conclusions and solve it.
++ Listen to tones from 8 hz to 14 hz in a loop without 7 hz.
++ Try online visualization scripts.
++ If you lose control imagine your body where it is.
++ Train your mind again with small tasks, it doesn't matter what it is, just work your mind to a good balance.
++ Play games to reinforce your skills and abilities and be in a positive social circle to reinforce yourself and your personality.
++ I recommend buying when on discount, so check on web or download the app udemy, signup and login to then turn on notifications: https://www.udemy.com/course/the-complete-personal-development-course/ 
 
 
 # Motivational sayings:
@@ -232,40 +259,115 @@ Make it to a game, it could be mental to conversations or roleplays.
 + Predict output and outcomes and decide if it's worth pursuing. Determine and eliminate any unnecessary risks.
 + Qualify the objectives to know the cost.
 + Establish the most creative way of delivering prerequisites.
-+ Define prerequisites for what success would be. Define main goals and determine the best main goal. Goals aren't everything. Don't be crushed if you can't right now. Be disciplined to complete a smart goal. Disconnect from the negative consciousness to then connect to the positive. Always have a vision, hope and purpose. Be disciplined, productive and focus on what you own and can do to be what you want to be. Be grateful and careful with money. Appreciate money. Make progress in every area. Make use of what you have. Beliefs are just ideas. Focus on one thing at a time. Focus on what you have first, where you are and then build for the future. You start with one corner and continue with the next until you have a foundation. The foundation is important. If it is important to me or someone I love, then keep it otherwise drop it. Be more interested in others. Be social. Make friendships. There is hope for a good life. Enjoy life. Your longing for love is your drive and must be recognized and not suppressed. There is hope and it must not be suppressed. My sadness can relax and take it easy because the support of joy is also there to support me. It gives a peace of mind. There is always a smart route. Be objective and not subjective. Self disciplin is important. Accept what you can't control. You can have influence by controlling yourself. Focus on what you can control. Learn from your opponents. Find potential partners and take the one which is like you. Everything ends up being surpassed. Don't let the same people disappoint you twice. Someone else's progress does not diminish your progress. Don't react, boycott them with silence. Your brain is the strongest muscle, so train it a lot. Better days are coming, you won't wake up forever with a heavy heart. Hard times always reveal true friends. Take care of your body. Remember that health is another form of wealth. Be alone until you are appreciated. Sometimes you have to go through the worst to get the best. No matter how hard a past, you can always start over. You alone are enough, you don't have to prove anything to anyone. Never forget who helped you in the hard times. Patience is your ally. Your vision will be blurred, but it will become visible in time. You deserve everything, so respect and appreciate everything. There are many who love you, so don't focus on those who don't. Accept what is, let what was go, and have hope for what will be. A negative mind never gives a positive life. Be calm when you've been through it before, because you've been through it before. It is only you who has to make sure you are happy. Money is a tool. Freedom is the goal. Not telling others everything is self-care. Time separates you from others, so enjoy the moments. Time reveals who means what to whom. Remember, something has to end for something better to begin. Be careful who you trust, salt and sugar are similar. Seek respect not attention, it lasts longer. There is always someone who doesn't recognize your worth, don't let it be you. No regrets just do better next time. Let go of the wrong people so you meet the right people. Forgive yourself, you have changed. Don't give up when it's hard, but find a smart solution if there is one otherwise work hard. Show will, but do not willfully create others. You always have to work hard to be successful. Tell only those closest and trustworthy with good confidence about life. If it gives you pleasure, be quiet about it. No one is too busy, it's all about priorities. It's your mind, control it or someone else will. There may be good moments even in the future, so get ready. Be independent as much as possible. You don't go back in time. Be proud of yourself for your hard work. Everyone can cause pain so focus on those who's worth it. Work on yourself for yourself. Visualize steps for an action to become a habit. Strengthen the right will. Always be critical. Train your body and mind. Practice imagining having it and letting it go. Practice detachment. Accept your weaknesses and strengths. Always prepare instead of preconceived. Seek serenity. Change the behavior to this. Prejudice is ignorance and sometimes arrogance. I cannot change people, but they change themselves, and I can influence that change. Train empathy. One thing at a time, for full concentration. Remember to breathe deeply a few times. Feelings and problems should only be shared with those most trusted. Learn from mistakes. Problems and setbacks are opportunities to learn. Be grateful. It is important. Smart goals not just goals. Steps to experience success. Always choose the wisest solution. Self management is important. I have to live in the present, but plan for the future when it comes. Self control is important. Practice makes mastery.
-
-
- 
-# Routine to rehab: 
-+ Read and think "Your thoughts come by itself, with concentration it can come by with effort."
-+ Keep the common world in thought.
-+ Meditate every day with positive and constructive sentences.
-+ Every perspective has a meaning likewise has world views.
-+ Hallucinations can be expression for feelings or thoughts.
-+ Remember that it just can, it's not always right.
-+ Dissociations are thoughts from fantasy, meanwhile visual thoughts can be imaginative and relatable.
-+ Reflect before sleep and after about what has happened in the real world.
-+ Remember to remember the real world and train your brain without exhausting, but have energy enough for the day.
-+ Focus to change bad habits and keeping good habits.
-+ Listen to positive vibes and positive or neutral music instead bad or something, that has a bad influence.
-+ Keep remembering true good moments.
-+ Keep track of your own body language and your feelings.
-+ Note down abnormalities and check if their are abnormalities, but only if it's convenient.
-+ Keep remembering the true world and don't do harm unless it's necessary.
-+ Keep remembering that you are yourself and that only you can control yourself.
-+ Take care of yourself with hygiene and nutrition.
-+ Drink enough water every day.
-+ Meditate by closing your eyes and focusing on only your breathing for 20 minutes every day.
-+ Documentate wrong assumptions and conclusions and solve it.
-+ Listen to tones from 8 hz to 14 hz in a loop without 7 hz.
-+ Try online visualization scripts.
-+ If you lose control imagine your body where it is.
-+ Train your mind again with small tasks, it doesn't matter what it is, just work your mind to a good balance.
-+ Play games to reinforce your skills and abilities and be in a positive social circle to reinforce yourself and your personality.
-+ I recommend buying when on discount, so check on web or download the app udemy, signup and login to then turn on notifications: https://www.udemy.com/course/the-complete-personal-development-course/ 
-
-
-
++ Define prerequisites for what success would be.
++ Define main goals and determine the best main goal.
++ Goals aren't everything.
++ Don't be crushed if you can't right now.
++ Be disciplined to complete a smart goal.
++ Disconnect from the negative consciousness to then connect to the positive.
++ Always have a vision, hope and purpose.
++ Be disciplined, productive and focus on what you own and can do to be what you want to be.
++ Be grateful and careful with money.
++ Appreciate money.
++ Make progress in every area.
++ Make use of what you have.
++ Beliefs are just ideas.
++ Focus on one thing at a time.
++ Focus on what you have first, where you are and then build for the future.
++ You start with one corner and continue with the next until you have a foundation.
++ The foundation is important.
++ If it is important to me or someone I love, then keep it otherwise drop it.
++ Be more interested in others.
++ Be social.
++ Make friendships.
++ There is hope for a good life.
++ Enjoy life.
++ Your longing for love is your drive and must be recognized and not suppressed.
++ There is hope and it must not be suppressed.
++ My sadness can relax and take it easy because the support of joy is also there to support me.
++ It gives a peace of mind.
++ There is always a smart route.
++ Be objective and not subjective.
++ Self disciplin is important.
++ Accept what you can't control.
++ You can have influence by controlling yourself.
++ Focus on what you can control.
++ Learn from your opponents.
++ Find potential partners and take the one which is like you.
++ Everything ends up being surpassed.
++ Don't let the same people disappoint you twice.
++ Someone else's progress does not diminish your progress.
++ Don't react, boycott them with silence.
++ Your brain is the strongest muscle, so train it a lot.
++ Better days are coming, you won't wake up forever with a heavy heart.
++ Hard times always reveal true friends.
++ Take care of your body.
++ Remember that health is another form of wealth.
++ Be alone until you are appreciated.
++ Sometimes you have to go through the worst to get the best.
++ No matter how hard a past, you can always start over.
++ You alone are enough, you don't have to prove anything to anyone.
++ Never forget who helped you in the hard times.
++ Patience is your ally.
++ Your vision will be blurred, but it will become visible in time.
++ You deserve everything, so respect and appreciate everything.
++ There are many who love you, so don't focus on those who don't.
++ Accept what is, let what was go, and have hope for what will be.
++ A negative mind never gives a positive life.
++ Be calm when you've been through it before, because you've been through it before.
++ It is only you who has to make sure you are happy.
++ Money is a tool.
++ Freedom is the goal.
++ Not telling others everything is self-care.
++ Time separates you from others, so enjoy the moments.
++ Time reveals who means what to whom.
++ Remember, something has to end for something better to begin.
++ Be careful who you trust, salt and sugar are similar.
++ Seek respect not attention, it lasts longer.
++ There is always someone who doesn't recognize your worth, don't let it be you.
++ No regrets just do better next time.
++ Let go of the wrong people so you meet the right people.
++ Forgive yourself, you have changed.
++ Don't give up when it's hard, but find a smart solution if there is one otherwise work hard.
++ Show will, but do not willfully create others.
++ You always have to work hard to be successful.
++ Tell only those closest and trustworthy with good confidence about life.
++ If it gives you pleasure, be quiet about it.
++ No one is too busy, it's all about priorities.
++ It's your mind, control it or someone else will.
++ There may be good moments even in the future, so get ready.
++ Be independent as much as possible.
++ You don't go back in time.
++ Be proud of yourself for your hard work.
++ Everyone can cause pain so focus on those who's worth it.
++ Work on yourself for yourself.
++ Visualize steps for an action to become a habit.
++ Strengthen the right will.
++ Always be critical.
++ Train your body and mind.
++ Practice imagining having it and letting it go.
++ Practice detachment.
++ Accept your weaknesses and strengths.
++ Always prepare instead of preconceived.
++ Seek serenity.
++ Change the behavior to this.
++ Prejudice is ignorance and sometimes arrogance.
++ I cannot change people, but they change themselves, and I can influence that change.
++ Train empathy.
++ One thing at a time, for full concentration.
++ Remember to breathe deeply a few times.
++ Feelings and problems should only be shared with those most trusted.
++ Learn from mistakes.
++ Problems and setbacks are opportunities to learn.
++ Be grateful.
++ It is important.
++ Smart goals not just goals.
++ Steps to experience success.
++ Always choose the wisest solution.
++ Self management is important.
++ I have to live in the present, but plan for the future when it comes.
++ Self control is important.
++ Practice makes mastery.
 
 
 # So is this you?
