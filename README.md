@@ -8,25 +8,27 @@ A theory and implementation for curing and/or changing psychosis.
 
 If memory, logic and senses were put in a set like a half bubble. And if structure, thought, feeling and intelligence in this sequence were put in a set and interconnected in the sequence called F L O W and diagonal not named and additionally between the named connections/links. And if sequence, plan and action were put in a set interconnected making a triangle. And if from high to low order making a stair The, perspective and momentum were put in a set. And if in a half box where top has link and bottom difference were a set. Would all these sets then not make a puzzle of the consciousness, which when solved then be able to change a persons psychosis?
 
-By giving personalized codes, which could be anything from objects to non-objects with any kind of pattern and combination, like for example personalized codes for a paranoid schizophrenia:
+By giving personalized codes, which could be anything from objects to non-objects with any kind of pattern and combination, like for example personalized codes as numbers with different meanings for a paranoid schizophrenia:
 
 0. group, company, off, zero, null or organization.
 
-1 yes, single, no, person, negative, positive, on, one or first.
+1. yes, single, no, person, negative, positive, on, one or first.
 
-2 yes, no, positive, negative, couple, two, second or after 3 order, police, military, agency, family, three, holy, intelligence or informer.
+2. yes, no, positive, negative, couple, two, second or after 
 
-4 negative, criminal, unholy, four, mafia, cartel or gang.
+3. order, police, military, agency, family, three, holy, intelligence or informer.
 
-5 handicap, five, espionage, spy or intel.
+4. negative, criminal, unholy, four, mafia, cartel or gang.
 
-6 unholy, six, satanist, demon, terror, killer, terrorist or weapons.
+5. handicap, five, espionage, spy or intel.
 
-7 lucky, seven or holy.
+6. unholy, six, satanist, demon, terror, killer, terrorist or weapons.
 
-8 mafia, cartel, syndicate, other criminal organization or eight.
+7. lucky, seven or holy.
 
-9 threat, weapon, spy or nine Combine numbers and it gets a meaning in context.
+8. mafia, cartel, syndicate, other criminal organization or eight.
+
+9. threat, weapon, spy or nine Combine numbers and it gets a meaning in context.
 
 The person would at some time think in codes and organize by looking, moving or saying.
 At some time the person if the person keeps going, would like to do something.
