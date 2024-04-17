@@ -12,7 +12,7 @@ By giving personalized code, like as example if paranoid schizophrenia:
 
 0 group, company, off, zero, null or organization.
 
-1 yes, single, no, uerson, negative, positive, on, one or first.
+1 yes, single, no, person, negative, positive, on, one or first.
 
 2 yes, no, positive, negative, couple, two, second or after 3 order, police, military, agency, family, three, holy, intelligence or informer.
 
@@ -60,6 +60,14 @@ For understanding:
 +Synesthesia: Distinct from neuroscience, the concept of synesthesia in the arts is regarded as the simultaneous perception of multiple stimuli in one gestalt experience. Is a perceptual phenomenon in which stimulation of one sensory or cognitive pathway. 
 
 +Mind wandering: a condition in which thoughts do not remain focused on the task at hand but range widely and spontaneously across other topics.
+
+Games:
+
++ Guess what I can and know: you say what you are, the opponent must also guess what you can and know, points for each mentioned skill or knowledge. Something new is drawn from a collection of self-made pieces of paper with text that says what you are. After the opponent's guess, the roles are changed.
+
++ Guess which science: one mentions something, and the other has to guess which science was used, or can be used for the mentioned. You may use the internet and you may ask others. Points are awarded for each correct science mentioned to the guesser. If guessed incorrectly, points are given for each incorrect science to the asker. If there was no guess in the round, points are also given to the asker. The roles are changed after the points are awarded.
+
++
 
 
 Motivational things:
