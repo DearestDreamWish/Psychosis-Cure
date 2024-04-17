@@ -67,8 +67,16 @@ Games:
 
 + Guess which science: one mentions something, and the other has to guess which science was used, or can be used for the mentioned. You may use the internet and you may ask others. Points are awarded for each correct science mentioned to the guesser. If guessed incorrectly, points are given for each incorrect science to the asker. If there was no guess in the round, points are also given to the asker. The roles are changed after the points are awarded.
 
-+
++ Analyze works: one chooses a work, and the other must describe and talk about the work. For each descriptive word or phrase for the story, one point is given. If something is described or told that can be said to be incorrect, one point is given for each incorrect sentence or word to the asker. The roles are changed after the points are awarded.
 
++ Design a martial arts combo: one must show a combo and the other must do the same. If the imitation is done incorrectly, a point is given to the one who showed. If the imitation is done correctly, a point is given to the imitator. The roles are changed after the points are awarded.
+
++ Tell with emotion: there is one who tells a made-up story or a real story, and the other must analyze and tell what they have concluded about the story the narrator gives, so points for how good a conclusion you got from 0 to 3. You switch roles after each assessment.
+
++ Guess an action: one moves to show an action and the other has to guess the action. If guessed correctly before one minute, a point is given to the guesser, if not, a point is given to the one who showed the action. The roles are changed after the points are awarded.
+
++ Guess a reaction: one makes a reaction and the other guesses the reaction before 20 seconds from the start. You must say "Guess" before the time starts. For each correct descriptive word for the reaction made by the guesser, points are awarded to the guesser. For each incorrect descriptive word for the reaction made by the guesser, points are given to the reaction maker. One point is given to the reaction maker if the guess is incorrect. The roles are changed after points are awarded.
++ 
 
 Motivational things:
 
