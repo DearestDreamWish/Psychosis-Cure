@@ -76,7 +76,20 @@ Games:
 + Guess an action: one moves to show an action and the other has to guess the action. If guessed correctly before one minute, a point is given to the guesser, if not, a point is given to the one who showed the action. The roles are changed after the points are awarded.
 
 + Guess a reaction: one makes a reaction and the other guesses the reaction before 20 seconds from the start. You must say "Guess" before the time starts. For each correct descriptive word for the reaction made by the guesser, points are awarded to the guesser. For each incorrect descriptive word for the reaction made by the guesser, points are given to the reaction maker. One point is given to the reaction maker if the guess is incorrect. The roles are changed after points are awarded.
-+ 
+
++ Guess the situation: one tells a story and the other has to explain the situation. If a good explanation is given, a point is given to the person who explained. If there is no explanation or the explanation is poor, one point is given to the narrator. The roles are changed after the points are awarded.
+
++ Tell the feeling: one person names a feeling and the other has to explain the feeling and describe how it feels. One point is given to the explainer, if the explainer tells how to get the feeling and another point for the description. If it is not explained or if it is not really true what was explained, points are given to the asker. If the feeling is not named or the feeling is named incorrectly, points are given to the opponent. The roles are changed after two points.
+
++ Guess the message for the situation: one tells a situation and the other has to give a message for the situation that makes sense before a minute after the story is finished and it was said "The story is finished". Points are given to the narrator if the time runs out and no message was said, otherwise a point is given to the message giver. The roles are changed after each point.
+
++ Give me a feeling and discuss with me: one must try to give a feeling and the feeling reciever must discuss until the feeling changes. If the feeling changes, one point is given to the one with the given feeling, even if no feeling was given before 10 seconds from the start. The emotion giver gets one point, if the emotion is not changed before 20 seconds from the start. You switch roles after each point.
+
++ Make it easier: one tells a story in detail and the other has to guess what can be improved or what can be made easier with explanation. Points are given according to how many improvements are explained, if no improvement is explained, a point is given to the storyteller. The roles are changed after the points are awarded.
+
++ What to do: one tells a story or situation and the other has to explain what to do. Points are awarded for each correct option mentioned to the explainer. For each incorrect option mentioned, points are given to the narrator. One point is given to the narrator, if the person who has to explain does not mention anything. The roles are changed after the points are awarded.
+
+
 
 Motivational things:
 
