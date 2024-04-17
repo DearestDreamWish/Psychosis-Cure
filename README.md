@@ -1,7 +1,7 @@
 # Psychosis-Cure
 A theory and implementation for curing and/or changing psychosis.
 
-# Danish and English theory models.
+# Danish and English theory models:
 
 ![Danish visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/20221005_123606.jpg)
 ![English visual Psychosis structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/Uden%20titel.png)
