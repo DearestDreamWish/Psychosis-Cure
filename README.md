@@ -63,6 +63,9 @@ Make it to a game, it could be mental to conversations or roleplays.
 
 + Mind wandering: a condition in which thoughts do not remain focused on the task at hand but range widely and spontaneously across other topics.
 
++ Jaak Panksepp carved out seven biologically inherited primary affective systems called SEEKING (expectancy), FEAR (anxiety), RAGE (anger), LUST (sexual excitement), CARE (nurturance), PANIC/GRIEF (sadness), and PLAY (social joy). He proposed what is known as "core-SELF" to be generating these affects.
+
+
 # Games:
 
 + Guess what I can and know: you say what you are, the opponent must also guess what you can and know, points for each mentioned skill or knowledge. Something new is drawn from a collection of self-made pieces of paper with text that says what you are. After the opponent's guess, the roles are changed.
