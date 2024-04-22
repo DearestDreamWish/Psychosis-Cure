@@ -65,6 +65,8 @@ Make it to a game, it could be mental to conversations or roleplays.
 
 + Jaak Panksepp carved out seven biologically inherited primary affective systems called SEEKING (expectancy), FEAR (anxiety), RAGE (anger), LUST (sexual excitement), CARE (nurturance), PANIC/GRIEF (sadness), and PLAY (social joy). He proposed what is known as "core-SELF" to be generating these affects.
 
++ Sensation is input about the physical world obtained by our sensory receptors and sent to the brain through the nervous system. Perception is the process by which the brain selects, organizes, and interprets these sensations.
+
 
 # Games:
 
