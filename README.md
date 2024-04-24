@@ -67,6 +67,7 @@ Make it to a game, it could be mental to conversations or roleplays.
 
 + Sensation is input about the physical world obtained by our sensory receptors and sent to the brain through the nervous system. Perception is the process by which the brain selects, organizes, and interprets these sensations.
 
++ While your conscious mind – i.e. the part of your brain that you can control with your will and your act in action – can pick up and interpret approximately 40 stimuli from the environment per second, the subconscious mind processes 20 million stimuli in  the second. Your subconscious mind is therefore an extremely powerful information processor, and it observes both the outside world and the body's internal signals, reads the environment's signals and makes use of previously learned information - all without help, monitoring or attention from the  conscious mind.
 
 # Games:
 
