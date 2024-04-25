@@ -28,7 +28,10 @@ By giving personalized codes, which could be anything from objects to non-object
 
 8. mafia, cartel, syndicate, other criminal organization or eight.
 
-9. threat, weapon, spy or nine Combine numbers and it gets a meaning in context.
+9. threat, weapon, spy or nine.
+
+
+Combine numbers and it gets a meaning in context.
 
 The person would at some time think in codes and organize by looking, moving or saying.
 At some time the person if the person keeps going, would like to do something.
