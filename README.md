@@ -6,6 +6,9 @@ A theory and implementation for curing and/or changing psychosis.
 3. Games.
 4. Routine to rehab.
 5. Motivational sayings.
+6. So is this you?
+
+This project can be updated at anytime, so check later if you want.
 
 # Danish and English theory models:
 
