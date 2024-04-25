@@ -66,23 +66,30 @@ Make it to a game, it could be mental to conversations or roleplays.
 
 ![English visual comfort structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/effect%20affect%20titel.png)
 
++ Touch: Touch your own skin if possible like the hand.
++ Acupunture: Pressure places like described online for different reasons.
++ Breathing: Focus on breathing until you have calmed yourself.
+
 + It's important that the person develops a comfort zone and from there expands it on own pace.
 
 # For understanding:
 
-+ Mind's eye: the mental faculty of conceiving imaginary or recollected scenes. 
++ Mind's eye: The mental faculty of conceiving imaginary or recollected scenes. 
 
 + Verbal working memory system. 
 
 + Synesthesia: Distinct from neuroscience, the concept of synesthesia in the arts is regarded as the simultaneous perception of multiple stimuli in one gestalt experience. Is a perceptual phenomenon in which stimulation of one sensory or cognitive pathway. 
 
-+ Mind wandering: a condition in which thoughts do not remain focused on the task at hand but range widely and spontaneously across other topics.
++ Mind wandering: A condition in which thoughts do not remain focused on the task at hand but range widely and spontaneously across other topics.
 
 + Jaak Panksepp carved out seven biologically inherited primary affective systems called SEEKING (expectancy), FEAR (anxiety), RAGE (anger), LUST (sexual excitement), CARE (nurturance), PANIC/GRIEF (sadness), and PLAY (social joy). He proposed what is known as "core-SELF" to be generating these affects.
 
 + Sensation is input about the physical world obtained by our sensory receptors and sent to the brain through the nervous system. Perception is the process by which the brain selects, organizes, and interprets these sensations.
 
 + While your conscious mind – i.e. the part of your brain that you can control with your will and your act in action – can pick up and interpret approximately 40 stimuli from the environment per second, the subconscious mind processes 20 million stimuli in  the second. Your subconscious mind is therefore an extremely powerful information processor, and it observes both the outside world and the body's internal signals, reads the environment's signals and makes use of previously learned information - all without help, monitoring or attention from the  conscious mind.
+
++ Neuro-linguistic programming.
+
 
 # Games:
 
