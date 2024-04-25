@@ -66,6 +66,7 @@ If you have suddenly a lot of saliva in your mouth, it can be a sign for mental 
 
 If you are easily shocked, it can be a sign of dissociation.
 
+
 It's important that the person develops a comfort zone and from there expands it on own pace.
 
 # For understanding:
@@ -95,6 +96,12 @@ It's important that the person develops a comfort zone and from there expands it
 + While your conscious mind – i.e. the part of your brain that you can control with your will and your act in action – can pick up and interpret approximately 40 stimuli from the environment per second, the subconscious mind processes 20 million stimuli in  the second. Your subconscious mind is therefore an extremely powerful information processor, and it observes both the outside world and the body's internal signals, reads the environment's signals and makes use of previously learned information - all without help, monitoring or attention from the  conscious mind.
 
 + Neuro-linguistic programming.
+
++ Remember that you without and with sound can think.
+
++ You can recall with triggers and if controlled make a mind palace and with it recall with high precision.
+
++ You can design your own thoughts and so train of thoughts.
 
 # Games:
 
