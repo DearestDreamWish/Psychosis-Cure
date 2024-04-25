@@ -34,20 +34,21 @@ By giving personalized codes, which could be anything from objects to non-object
 Combine numbers and it gets a meaning in context.
 
 The person would at some time think in codes and organize by looking, moving or saying.
-At some time the person if the person keeps going, would like to do something.
+At some time the person if the person keeps going, the person would then like to do something.
 
-Also: All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
+Also: 
 
-When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even ironic things. It's like falling back or having a backup.
+All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
+
+When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even something things, that the person dislikes. It's like falling back or having a backup.
 
 Avoidance technique: Stop the drama, be calm. Prevent the development of brain drama. If it's not possible to stop it, then analyze it and problem solve it.
 
-Brain breaking. If you miss something important in an important situation, forget something important or remember several things at the same time in a disorganized way.
+Brain breaking: If you miss something important in an important situation, forget something important or remember several things at the same time in a disorganized way.
 
 If you are in doubt and have to choose, the brain can be "split". The greater the stress, the greater the division. The more choices, the more divisions.
 
 If neccesary get other people involved, from friends to psychologists or therapist. By changing the pattern, symptoms gets easier to notice and react, also make proactive choices.
-
 
 Make it to a game, it could be mental to conversations or roleplays.
 
@@ -55,6 +56,8 @@ Make it to a game, it could be mental to conversations or roleplays.
 # For comfort:
 
 ![English visual comfort structure model](https://github.com/DearestDreamWish/Psychosis-Cure/blob/main/effect%20affect%20titel.png)
+
++ It's important that the person develops a comfort zone and from there expands it on own pace.
 
 # For understanding:
 
