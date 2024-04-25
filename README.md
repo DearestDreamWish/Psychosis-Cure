@@ -59,7 +59,14 @@ Make it to a game, it could be mental to conversations or roleplays.
 + Acupunture: Pressure places like described online for different reasons.
 + Breathing: Focus on breathing until you have calmed yourself.
 
-+ It's important that the person develops a comfort zone and from there expands it on own pace.
+
+If you have marbled skin it can be a sign for being scared and may even have dissociations, because you do not recognize such feelings.
+
+If you have suddenly a lot of saliva in your mouth, it can be a sign for mental disturbances.
+
+If you are easily shocked, it can be a sign of dissociation.
+
+It's important that the person develops a comfort zone and from there expands it on own pace.
 
 # For understanding:
 
@@ -88,7 +95,6 @@ Make it to a game, it could be mental to conversations or roleplays.
 + While your conscious mind – i.e. the part of your brain that you can control with your will and your act in action – can pick up and interpret approximately 40 stimuli from the environment per second, the subconscious mind processes 20 million stimuli in  the second. Your subconscious mind is therefore an extremely powerful information processor, and it observes both the outside world and the body's internal signals, reads the environment's signals and makes use of previously learned information - all without help, monitoring or attention from the  conscious mind.
 
 + Neuro-linguistic programming.
-
 
 # Games:
 
