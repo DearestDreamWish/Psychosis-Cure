@@ -3,10 +3,11 @@ A theory and implementation for curing and/or changing psychosis.
 # Contents list:
 1. Danish and English theory models.
 2. For comfort.
-3. Games.
-4. Routine to rehab.
-5. Motivational sayings.
-6. So is this you?
+3. For understanding.
+4. Games.
+5. Routine to rehab.
+6. Motivational sayings.
+7. So is this you?
 
 This project can be updated at anytime, so check later if you want.
 
@@ -45,18 +46,6 @@ Combine numbers and it gets a meaning in context.
 The person would at some time think in codes and organize by looking, moving or saying.
 At some time the person if the person keeps going, the person would then like to do something.
 
-Also: 
-
-All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
-
-When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even something things, that the person dislikes. It's like falling back or having a backup.
-
-Avoidance technique: Stop the drama, be calm. Prevent the development of brain drama. If it's not possible to stop it, then analyze it and problem solve it.
-
-Brain breaking: If you miss something important in an important situation, forget something important or remember several things at the same time in a disorganized way.
-
-If you are in doubt and have to choose, the brain can be "split". The greater the stress, the greater the division. The more choices, the more divisions.
-
 If neccesary get other people involved, from friends to psychologists or therapist. By changing the pattern, symptoms gets easier to notice and react, also make proactive choices.
 
 Make it to a game, it could be mental to conversations or roleplays.
@@ -73,6 +62,16 @@ Make it to a game, it could be mental to conversations or roleplays.
 + It's important that the person develops a comfort zone and from there expands it on own pace.
 
 # For understanding:
+
++ All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
+
++ When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even something things, that the person dislikes. It's like falling back or having a backup.
+
++ Avoidance technique: Stop the drama, be calm. Prevent the development of brain drama. If it's not possible to stop it, then analyze it and problem solve it.
+
++ Brain breaking: If you miss something important in an important situation, forget something important or remember several things at the same time in a disorganized way.
+
++ If you are in doubt and have to choose, the brain can be "split". The greater the stress, the greater the division. The more choices, the more divisions.
 
 + Mind's eye: The mental faculty of conceiving imaginary or recollected scenes. 
 
