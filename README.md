@@ -1,5 +1,11 @@
 # Psychosis-Cure
 A theory and implementation for curing and/or changing psychosis.
+# Contents list:
+1. Danish and English theory models.
+2. For comfort.
+3. Games.
+4. Routine to rehab.
+5. Motivational sayings.
 
 # Danish and English theory models:
 
