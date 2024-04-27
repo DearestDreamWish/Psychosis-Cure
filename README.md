@@ -103,6 +103,8 @@ It's important that the person develops a comfort zone and from there expands it
 
 + You can design your own thoughts and so train of thoughts.
 
++ Visualization.
+
 # Games:
 
 + Guess what I can and know: you say what you are, the opponent must also guess what you can and know, points for each mentioned skill or knowledge. Something new is drawn from a collection of self-made pieces of paper with text that says what you are. After the opponent's guess, the roles are changed.
