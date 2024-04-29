@@ -66,6 +66,10 @@ If you have suddenly a lot of saliva in your mouth, it can be a sign for mental 
 
 If you are easily shocked, it can be a sign of dissociation.
 
+If you close the right eye you would lessen the input to the left brain, which works in logic.
+
+If you close the left eye you would lessen the input to the right brain, which works in feelings.
+
 
 It's important that the person develops a comfort zone and from there expands it on own pace.
 
