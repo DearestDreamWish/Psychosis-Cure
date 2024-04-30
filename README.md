@@ -108,6 +108,55 @@ It's important that the person develops a comfort zone and from there expands it
 + You can design your own thoughts and so train of thoughts.
 
 + Visualization.
++ Introspection.
++ Behaviorisme.
++ Psychoanalysis.
++ Evolutionary psychology.
++ Positive psychology.
++ Piaget's stages.
++ Vygotsky theory.
++ Harlow ape experiment.
++ Kohlberg's moral stages.
++ Neuroplasticity.
++ Ekmans universal feelings.
++ Festinger boring tasks.
++ James lange's theory of emotion.
++ Damasio's theory about decision making.
++ Wasons confirmation theory.
++ Baumeisters ego depletion.
++ Kahneman & Tversky prospect theory.
++ The bystander effect.
++ Janis group dynamics.
++ Allport contact theory.
++ The stanford prison experiment.
++ Stanley Milgram obedience theory.
++ Stereotype threat.
++ Follow the leader theory.
++ Lake Wobegon effect.
++ Five factor model.
++ Fundamental attribution error.
++ Hans Eysenck theory.
++ Inheritance and environment theory.
++ Flynn effect.
++ Ericsson 10000 hour rule.
++ Nominative determinism.
++ Sperrys two brain halfs.
++ Seligmans preparedness for learning theory.
++ Charcots hysteria theory.
++ On Being Sane in Insane Places also called Rosenhan-eksperimentet.
++ Kapurs deviant attention theory.
++ Maslow's humanistic psychology theory.
++ Beck's cognitive therapy.
++ Extreme male brains theory.
++ Placebo effect.
++ Pavlovs dogs theory.
++ Sapir Whorf hypothesis.
++ Chomsky's universal grammar theory.
++ Loftus false memory theory.
++ Physical cognitive theory.
++ Broadbent's bottleneck theory.
++ Miller's magic 7 theory.
++ Consciousness theory.
 
 # Games:
 
