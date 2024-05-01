@@ -106,7 +106,7 @@ It's important that the person develops a comfort zone and from there expands it
 + You can recall with triggers and if controlled make a mind palace and with it recall with high precision.
 
 + You can design your own thoughts and so train of thoughts.
-
++ Introjection.
 + Visualization.
 + Introspection.
 + Behaviorisme.
