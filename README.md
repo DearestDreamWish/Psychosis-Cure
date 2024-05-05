@@ -75,7 +75,7 @@ It's important that the person develops a comfort zone and from there expands it
 
 # For understanding:
 
-+ Mentalization: You can switch thought pattern for different mental situations. Like about you or anything external.
++ Mentalization/Mentalization ability: You can switch thought pattern for different mental situations. Like about you or anything external.
 
 + All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
 
