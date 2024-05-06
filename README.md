@@ -79,6 +79,8 @@ It's important that the person develops a comfort zone and from there expands it
 
 + Association.
 
++ Metacognition.
+
 + All the psychic can be stored differently with the will or control. Discipline can help. This technique can be used to repair damage.
 
 + When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even something things, that the person dislikes. It's like falling back or having a backup.
