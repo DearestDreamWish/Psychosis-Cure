@@ -163,6 +163,10 @@ It's important that the person develops a comfort zone and from there expands it
 + Broadbent's bottleneck theory.
 + Miller's magic 7 theory.
 + Consciousness theory.
++ Neuroscience.
++ Neuropsychology.
++ Neurology.
++ Sensation & perception.
 
 # Games:
 
